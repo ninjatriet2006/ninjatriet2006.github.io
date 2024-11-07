@@ -1,0 +1,1 @@
+# ninjatriet2006.github.io
